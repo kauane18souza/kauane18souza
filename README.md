@@ -7,4 +7,8 @@ Eu sou aluna do colégio márcia vaz tostes de abreu
 
 - insta:@kau_souzzaa
 - eu namoro com Thiago 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fanne-with-an-e&psig=AOvVaw1zSVGKlE_9bE0xAnhYqEmv&ust=1695823735700000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCJDb7u25yIEDFQAAAAAdAAAAABAD) 
+
+
+![](https://media.tenor.com/e5pYTKS0te0AAAAC/lana.gif)
+
+
